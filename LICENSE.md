@@ -1,4 +1,4 @@
-
+Experience life together rp like never before with life together rp secure Script, the #1 Script. Includes teleport and anti-ban for unbeatable
 
 
 
